@@ -1,1 +1,1 @@
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=2000&color=000000&multiline=true&repeat=false&random=false&width=435&height=55&lines=another+dude+who's+interested+in%3A;android+kernels%2C+ROMs)](https://git.io/typing-svg)
+### another dude who's interested in: <br /> wasting time
